@@ -1,1 +1,6 @@
 # Emotiva_Start
+askjfbasugfvhasdfahskjbfuias
+asyhufvasuyfvbqpsiufduyasvf
+aspuyfvsaçkhdfosahdbas
+aslugdvaskndvoautscvd 
+asoydvaçshkdciyatsgd 
